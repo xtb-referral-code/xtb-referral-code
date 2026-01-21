@@ -86,7 +86,7 @@ If you have suggestions for improving this documentation or have found outdated 
 
 ## Contact
 
-For questions about the referral code or educational resources, visit [TradingBeasts.com](https://tradingbeasts.com)
+For questions about the referral code or educational resources, visit [TradingBeasts.com](https://tradingbeasts.com/xtb-referral-code/)
 
 ---
 
